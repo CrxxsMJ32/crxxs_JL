@@ -1,4 +1,4 @@
-# 🖖 Hola soy Crxxs 
+# 🖖 Hola soy Crxxstopher
 
 Estudiante en Ingenieria de Sistemas Computacionales
 Mexico | Instagram | cristopherverahernandez@ucma.edu.mx
